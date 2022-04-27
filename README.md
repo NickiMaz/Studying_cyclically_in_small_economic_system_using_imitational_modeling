@@ -1,0 +1,1 @@
+# Studying_cyclically_in_small_economic_system_using_imitational_modeling
